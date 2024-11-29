@@ -1,1 +1,1 @@
-# rsschool-cv
+https://AdiletAldazharbekov.github.io/rsschool-cv/
